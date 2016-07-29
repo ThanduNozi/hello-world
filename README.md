@@ -1,2 +1,4 @@
 # hello-world
 introduction to repositories
+
+I am Thanduxolo Lushaba Bongani Ntombela Born in Port Shepstone, from deep rural of Gamalakhe,I grew up in Soweto, in Meadowlands Soteba, with my Father as a single parent by then. My first incounter with computers is when I arrived at his place, for he was a Technician in the Teba Company. When I was 9 years old, I disambled and reasambled the Computer. My Love for the knowledge of computers grew there but I never got education on them, for I went back to my Grannies place, where there was no electricity at the time. When I was in high School I wanted to do, Computer Manufacturing Engineering Course, but after Grade 12, I got a Job, since no one was able to furnish me with Money to go look for school. I worked as a Cashier at a Petrol Station, after that I went to work as a Salesman at Game Stores, then after three years, I applied for University Admission in University of Fort Hare
